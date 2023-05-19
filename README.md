@@ -1,1 +1,1 @@
-# Artificial-Intelligence
+https://linus1408.github.io/Artificial-Intelligence/
